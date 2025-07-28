@@ -1,2 +1,0 @@
-# eunkyung-portfolio
-Portfolio 
